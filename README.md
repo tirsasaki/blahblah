@@ -1,1 +1,1 @@
-belajar membaca!
+belajar membaca
